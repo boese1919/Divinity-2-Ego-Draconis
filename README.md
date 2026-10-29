@@ -214,4 +214,4 @@ Divinity 2: Ego Draconis is the full free version, with all features and updates
 Dive into the epic adventure of Divinity 2: Ego Draconis today! Download now and unleash your inner dragon slayer!
 
 ---
-**Last updated:** 2026-10-28 20:54:42 UTC
+**Last updated:** 2026-10-29 00:43:45 UTC
